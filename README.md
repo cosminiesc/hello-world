@@ -19,4 +19,4 @@ Siemens Romania R&D, Brasov practitioner to DiscoverIt, 2022
 Mentor: ing. Alexandra Zolya
 
 The quote that describes me the best is the following one:
- "Give me six hours to chop down a tree and I will spend the first four sharpening the axe."- Abraham Lincoln.
+ "Give me six hours to chop down a tree and I will spend the first four sharpening the axe."- Abraham Lincoln
